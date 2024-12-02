@@ -11,8 +11,6 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/manojkumarfzd254](https://github.com/manojkumarfzd254)
 
-- 📫 How to reach me **https://wa.me/919045912548**
-
 - ⚡ Fun fact **I think i'm funny.**
 
 ### Blogs posts
